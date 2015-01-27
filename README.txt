@@ -1,2 +1,0 @@
-Austin Quick
-Atlanta Braves
